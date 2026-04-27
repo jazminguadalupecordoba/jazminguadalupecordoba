@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+En tu boca mordí la manzana carmín del deseo y la tentación, pero no imaginé que evitando la ley en la trampa caería yo. Puras leyes, puras trampas, inventamos al amor, y seguimos adelante corazon a corazon
 <!--
 **jazminguadalupecordoba/jazminguadalupecordoba** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
